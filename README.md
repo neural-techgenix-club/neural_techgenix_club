@@ -1,1 +1,1 @@
-# neural_techgenic_club
+# neural_techgenix_club
